@@ -3,7 +3,7 @@
 - 📫 How to reach me: Discord: ruffytheartist
 - PonyTown Stuff :
 - Moon - Not there, AFK, Offtab
-- Do Not Disturb - DNI (Do not Interact) /Basically what it already means, Almost never use)
+- Do Not Disturb - DNI (Do not Interact) /Basically what it already means, Almost never use unless you manage to be shitty enough to make me uncomfortable
 - Looking for roleplay - means im already in an rp / Almost never use)
 - Looking for Chat - If your also lonely come along and chat with me
 - Online - Probably very focused on making skins
