@@ -25,7 +25,4 @@ Im boring and very un-energetic ,, INT if you must ... i will be as rude as poss
 ___________________________________________________________________________________________
 | Thanks for reading my RBINT list                                                         |
 | Drawing commissions : $5 :: Lineart .. $10 :: Flat color ..                              |
-|                                                                                          |
-|                                                                                          |
-|                                                                                          |
 |__________________________________________________________________________________________|
