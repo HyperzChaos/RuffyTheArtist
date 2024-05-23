@@ -17,12 +17,10 @@ Acronyms for Dummys/j ,, DNI :: Do Not Interact .. INT :: Interact .. TDUF :: To
 ___________________________________________________________________________________________
 - Discomfort Unless Friend ..  DNIUF :: Do Not INT Unless Friend .. ==
 ___________________________________________________________________________________________
-Fav Quote/s :: " I am AM, the great and powerful. eugh they didnt bring me Toto, But i ---
-___________________________________________________________________________________________
-accept the chosen one. You shall not feel my wrath today. Am i swell or what? " - AM
-___________________________________________________________________________________________
 Im boring and very un-energetic ,, INT if you must ... i will be as rude as possible /j
 ___________________________________________________________________________________________
-Thanks for reading my RBINT list
+" I am AM, the great and powerful. eugh they didnt bring me Toto, But i accept the chosen 
+one. You shall not feel my wrath today. Am i swell or what? " - AM
 ___________________________________________________________________________________________
-
+|                         Thanks for reading my RBINT list                                |
+|_________________________________________________________________________________________|
