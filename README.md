@@ -1,24 +1,26 @@
-⋘ down𝑙𝑜𝑎𝑑𝑖𝑛𝑔... ⋙ 05/23/24 ██████████ 𝟏𝟎𝟎%
-
 About me ➼ Read Before You Interact
 
-└➤ˏˋ°•⁀➷｡･:˚:✧｡₊˚ˑ༄ؘ❥•°❀°•༢.ೃ࿐˚ ༘♡ ⋆｡˚ ❀
+Hello ,, I'm Ruffy , Ruff ❀ or Chaos ..
 
-Hello ,, I'm Ruffy ❀ Ted ❀ or Chaos ..
+└➤ˏˋ°•⁀➷｡･:˚:✧｡₊˚ˑ༄ؘ❥•°❀°•༢.ೃ࿐˚ ༘♡ ⋆｡˚ ❀
 
 ➼ Any Pronouns are okay.
 
 ➼ Birthday ;; 11/19/--
 
+➼Asexual/Aromantic
+
+➼ C+H is completely fine , i don't mind .. Don't be intimidated !!
+
 ➼ Spanish & English
 
-➼ I can be very dry sometimes but that doesn't mean i don't like you, I'm just not good at talking sometimes !!
+➼ I'm dry sometimes but that doesn't mean i don't like you, I'm not good at talking!!
 
 ➼ Ask for tone tags if needed !!
 
 ➼ If I'm very comfortable with you i might just start ranting abt my interests ..
 
-└➤ˏˋ°•⁀➷｡･:˚:✧｡₊˚ˑ༄ؘ❥•°❀°•༢.ೃ࿐˚ ༘♡ ⋆｡˚ ❀
+➼ If you don’t tell me your pronouns I’ll instantly refer to you as they/them ,, so feel free to correct me anytime ..
 
 ➼ Pookies ♡
 
@@ -26,21 +28,15 @@ Hello ,, I'm Ruffy ❀ Ted ❀ or Chaos ..
 
 ➼ Jmar
 
-➼ Ray / Rey
+➼Spicy Sauce
 
-➼ Lu Lu / Kel
+➼Petra
 
 ♡ ♡ ♡
 
 ➼ Fict Pookies ♡
 
-➼ Ellen
-
-➼ Benny
-
-➼ Gorrister
-
-➼ Nimdok
+➼ Stanley Pines ...
 
 └➤ˏˋ°•⁀➷｡･:˚:✧｡₊˚ˑ༄ؘ❥•°❀°•༢.ೃ࿐˚ ༘♡ ⋆｡˚ ❀
 
@@ -58,9 +54,19 @@ DNI ˖𓍯፤⁑
 
 ➼ Shadow x Amy
 
-➼ Basic DNI
+➼ Godzilla x Mothra
 
-└➤ˏˋ°•⁀➷｡･:˚:✧｡₊˚ˑ༄ؘ❥•°❀°•༢.ೃ࿐˚ ༘♡ ⋆｡˚ ❀
+➼ Godzilla x Anguirus
+
+➼ Bipper (ship)
+
+➼ Mabill
+
+➼ Stancest
+
+➼Mabel x Dipper
+
+➼ Basic DNI
 
 INT ˖𓍯፤⁑
 
@@ -76,13 +82,21 @@ INT ˖𓍯፤⁑
 
 ➼ Ace Attorney
 
+➼ Sonic
+
+➼Godzilla ::especially TMITS analog horror
+
+➼Gravity Falls + Book of Bill + Journal 3
+
+➼FiddleStan , Fiddauthor,
+
 └➤ˏˋ°•⁀➷｡･:˚:✧｡₊˚ˑ༄ؘ❥•°❀°•༢.ೃ࿐˚ ༘♡ ⋆｡˚ ❀
 
 I'm alright with ;;
 
 ➼ Kissing / Booping
 
-➼ 18 + Jokes
+➼ 18 + Jokes (Ask beforehand)
 
 ➼ Dark Humor
 
@@ -90,19 +104,13 @@ I'm alright with ;;
 
 ➼ Telling me your pronouns
 
-➼ Odetari
-
-➼ Tyler t. creator
-
-➼ Kendrick Lamar
-
-└➤ˏˋ°•⁀➷｡･:˚:✧｡₊˚ˑ༄ؘ❥•°❀°•༢.ೃ࿐˚ ༘♡ ⋆｡˚ ❀
-
 I'm NOT alright with ;;
 
 ➼ Racism
 
 ➼ shipping underage characters
+
+➼shipping blood-related characters
 
 ➼ Asking personal questions
 
@@ -123,3 +131,17 @@ KINS ˖𓍯፤⁑
 ➼ Zonic t. Zonecop (STH)
 
 ➼ Charlie Slimecicle (YT)
+
+➼Stanley Pines(GF)
+
+➼Mabel Pines(GF)
+
+└➤ˏˋ°•⁀➷｡･:˚:✧｡₊˚ˑ༄ؘ❥•°❀°•༢.ೃ࿐˚ ༘♡ ⋆｡˚ ❀
+
+Contacting Me ˖𓍯፤⁑
+
+➼Discord ;; ChaosRuffy
+
+➼Email ;; ChaosRuffy@gmail.com
+
+
