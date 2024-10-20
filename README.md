@@ -16,7 +16,7 @@ SIGNS !!
 ______________________
 Contacting Me ˖𓍯፤⁑
 
-➼Discord ;; ChaosRuffy
+➼Discord ;; Hyperzchaos
 
 ➼Email ;; ChaosRuffy@gmail.com
 
