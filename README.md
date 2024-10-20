@@ -1,5 +1,4 @@
-![image](https://github.com/user-attachments/assets/ab0145b4-69bf-48e8-92df-9914dab16ec4)
-
+https://64.media.tumblr.com/a195882e1fb793a9285eac06d2e416fb/7270b36d63e2f5fb-36/s1280x1920/0769332c515f2a2b7104811dbe26ed5575a31e85.gif
 └➤ˏˋ°•⁀➷｡･:˚:✧｡₊˚ˑ༄ؘ❥•°❀°•༢.ೃ࿐˚ ༘♡ ⋆｡˚ ❀
 
 SIGNS !!
