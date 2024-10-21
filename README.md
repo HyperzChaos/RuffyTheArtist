@@ -14,7 +14,6 @@ SIGNS !!
 
 🎭LFR: NEVER used, don't bother asking unless your a friend and i'm up for it.
 
-![download (1)](https://github.com/user-attachments/assets/f4bfd938-a2b9-469f-8a6d-62def5c398b2)
 _________________________
 
 Contacting Me ˖𓍯፤⁑
