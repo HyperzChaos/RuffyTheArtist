@@ -18,7 +18,7 @@ _________________________
 
 Contacting Me ˖𓍯፤⁑
 
-➼Discord ;; Hyperzchaos
+➼Discord ;; rvffIed
 
 ➼Email ;; ChaosRuffy@gmail.com
 
